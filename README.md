@@ -1,4 +1,4 @@
-- ✌🏿 Hi, I’m Dont'e, also known online as @blackMeadowhawk
+- ✌🏿 Hi, I’m @blackMeadowhawk
 - 🛹 I’m interested in Cybersecurity and longboarding
 - 🔐 I’m currently learning Cybersecurity
 - 🫱🏿‍🫲🏽 I’m looking to collaborate on no projects at the moment.
